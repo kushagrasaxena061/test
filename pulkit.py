@@ -1,1 +1,0 @@
-pulkit is pagal
